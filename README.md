@@ -1,4 +1,4 @@
-Curriculum Vitae
+#Curriculum Vitae
 Education
 University of Massachusetts Boston 2024
 - Bachelors of Science in Pure Mathematics
