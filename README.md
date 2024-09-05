@@ -1,5 +1,3 @@
-# Kenia Nova
-
 Education
 
 Selected Awards:
