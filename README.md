@@ -11,4 +11,4 @@ Research Interests:
 Selected Papers:
 
 
-Email: Kenia.Nova001@umb.edu
+Email: Kenia "dot" nova 001 "at" umb "dot" edu
