@@ -1,11 +1,12 @@
 # Kenia Nova
 
-Education: 
+Education
 
-Research Interests
+Selected Awards:
 
-Selected Papers
+Research Interests:
 
-Short CV
+Selected Papers:
+
 
 Email: Kenia.Nova001@umb.edu
