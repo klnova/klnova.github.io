@@ -1,5 +1,7 @@
 # Kenia Nova
 
+Education: 
+
 Research Interests
 
 Selected Papers
