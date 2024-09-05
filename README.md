@@ -1,4 +1,4 @@
-# klnova.github.io
+# Kenia Nova
 
 Research Interests
 
