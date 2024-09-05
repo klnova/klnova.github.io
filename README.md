@@ -8,7 +8,7 @@ University of Massachusetts Boston 2024
 
 # Research Interests:
 
-Selected Papers:
+# 
 
 
 Email: Kenia "dot" nova 001 "at" umb "dot" edu
