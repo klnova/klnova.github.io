@@ -7,8 +7,7 @@ University of Massachusetts Boston 2024
 
 ## Selected Awards
 
-### Research Interests
-here
+UMB justice case study
  
 
 
