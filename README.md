@@ -1,4 +1,4 @@
-# Curriculum Vitae
+## Curriculum Vitae
 Full CV available upon request
 ## Education
 University of Massachusetts Boston 2024
