@@ -7,8 +7,6 @@ University of Massachusetts Boston 2024
 
 ## Selected Awards
 
-UMB justice case study
- 
 
 
 Email: Kenia "dot" nova 001 "at" umb "dot" edu
