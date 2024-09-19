@@ -11,5 +11,5 @@ University of Massachusetts Boston (2024)
 
 
 ## Contact
-Email: Kenia"dot"Nova001"at"umb"dot"edu
-Github: klnova
+- Email: Kenia.Nova001@umb.edu
+- Github:@klnova
