@@ -5,6 +5,8 @@ University of Massachusetts Boston (2024)
 - Bachelor of Science in Pure Mathematics
 - Bachelor of Science in Physics 
 
+## Research
+
 ## Selected Awards
 
 
